@@ -1,0 +1,1 @@
+# mini-juima-shop
